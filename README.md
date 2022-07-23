@@ -1,0 +1,1 @@
+Fundamentals practicing and knowledge reafirmation
